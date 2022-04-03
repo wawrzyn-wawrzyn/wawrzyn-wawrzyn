@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @wawrzyn-wawrzyn
 - 👀 I’m interested in apples
 - 🌱 I’m currently learning to shoot
-- 💞️ I’m looking to collaborate on karak
+- 💞️ I’m looking to collaborate on loneliness
 - 📫 How to reach me teach me
 
 <!---
